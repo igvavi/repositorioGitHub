@@ -1,1 +1,1 @@
-Esperando encontrar señales de vida.
+<b>Esperando</b> encontrar señales de vida.
