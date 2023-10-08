@@ -1,1 +1,0 @@
-Esto es un fichero creado desde <b>gitkraken</b>
