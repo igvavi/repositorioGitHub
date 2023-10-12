@@ -1,17 +1,17 @@
 Alineación del Levante Unión Deportiva
 <br><br>
 Joan Femenías
-<br><br>
+<br>
 Carlos Álvarez
-<br><br>
+<br>
 Iván Romero
-<br><br>
+<br>
 Andrés García
-<br><br>
+<br>
 Álex Blesa
-<br><br>
+<br>
 Rúben Vezo
-<br><br>
+<br>
 Giorgi Kochorasvhili
-<br><br>
+<br>
 Pablo Martínez
